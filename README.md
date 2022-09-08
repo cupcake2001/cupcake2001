@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cupcake2001
+- 👋 Hi, I’m Madeleine Kriz
 - 👀 I’m interested in sport performance biotech
 - 🌱 I’m currently learning bioengngineering design and innovation
 - 💞️ I’m looking to collaborate on program that perfects athletic performance movements
